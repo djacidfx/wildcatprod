@@ -5,4 +5,4 @@ Thank you for taking the time to check us out!
 
 Check out our google play at https://play.google.com/store/apps/dev?id=8599109884308816488
 
-Visit out website at https://www.mywild.work/
+Visit our website at https://www.mywild.work/
